@@ -28,6 +28,5 @@
 
 ## 📫 Connect With Me
 
-- LinkedIn
-- Instagram
-- Behance
+- www.linkedin.com/in/lidiyal-mahima-j2716
+- https://www.behance.net/lidiyalmahima1
